@@ -1,0 +1,4 @@
+- Hey there, the name's Fighter
+- I am TJM Team's Leader
+- I'm a darkist and a furry
+- and you exist
